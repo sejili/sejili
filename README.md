@@ -19,6 +19,8 @@ that detect muscle movement and describe that to 3d
 so hard of hearing people learn muscle movement
 finaly they can speaking!
 
+scrifice is the game that is darwing story 
+
 
 **border all of the comment is just my mind.**
 
